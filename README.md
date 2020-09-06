@@ -15,12 +15,15 @@ I called his house and his dad answered. If you think Mark’s voice was deep an
 Mark came to the phone. I said something…stupid.
 
 > Me: “Wow. Your dad’s voice is so deep, I thought for a second that I was talking to a 6’6” muscular bouncer named Luther.”
+
 > Mark: “My dad’s name is Luther.”
+
 > Me: “…Wait. Are you messing with me?”
 
 Because you know he could. And would.
 
 > Mark: “Nope. His name is Luther.”
+
 > Me: 😳
 
 Dead. Silence. That’s all it took.
