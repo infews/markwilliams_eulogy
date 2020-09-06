@@ -36,9 +36,9 @@ I did visit him in Rockville the summer after my freshman year in college. A qui
 
 There was too much drinking to be doing math.
 
-On the way back to his house, we found ourselves near the top of the parking deck, peeing off the top into some bushes below.
+On the way back to his house, we found ourselves near the top of a parking deck, relieving ourselves off the top into some bushes below.
 
-I mean, he didn’t have to pee as far as the rest of us. But you know.
+He didn’t have to pee as far as the rest of us.
 
 There was too much drinking to be acting responsibly.
 
