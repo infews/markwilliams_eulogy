@@ -50,7 +50,7 @@ Recently, Mark checked with Mom and said she remembers me fondly. So, phew.
 
 For either High School or College Graduation, Mark sent me a letter opener. A *letter opener*. Who does that? Who even was getting enough mail to justify it in the late 20th century. It’s got a Sterling Silver handle, with a little bit of texture and a stainless blade. It tarnishes a little, in an endearing way.
 
-![My desk…](images/desk.jpg)
+<img align="right" alt="My desk..." src="images/desk.jpg">
 
 And now it’s going to stay on my desk, next to my computer, for-pretty-much-ever.
 
