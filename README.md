@@ -48,11 +48,11 @@ I did a lot of stupid things that trip. How did I not fall off that bridge? How 
 
 Recently, Mark checked with Mom and said she remembers me fondly. So, phew.
 
-For either High School or College Graduation, Mark sent me a letter opener. A *letter opener*. Who does that? Who even was getting enough mail to justify it in the late 20th century. It’s got a Sterling Silver handle, with a little bit of texture and a stainless blade. It tarnishes a little, in an endearing way.
-
 <img align="right" alt="My desk..." src="images/desk.jpg">
 
-<br/>
+For either High School or College Graduation, Mark sent me a letter opener. A *letter opener*. Who does that? Who even was getting enough mail to justify it in the late 20th century. It’s got a Sterling Silver handle, with a little bit of texture and a stainless blade. It tarnishes a little, in an endearing way.
+
+<hr/>
 
 And now it’s going to stay on my desk, next to my computer, for-pretty-much-ever.
 
