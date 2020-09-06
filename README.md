@@ -52,6 +52,8 @@ For either High School or College Graduation, Mark sent me a letter opener. A *l
 
 <img align="right" alt="My desk..." src="images/desk.jpg">
 
+<br/>
+
 And now it’s going to stay on my desk, next to my computer, for-pretty-much-ever.
 
 Fast forward a couple of decades.
