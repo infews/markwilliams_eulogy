@@ -48,7 +48,7 @@ I did a lot of stupid things that trip. How did I not fall off that bridge? How 
 
 Recently, Mark checked with Mom and said she remembers me fondly. So, phew.
 
-<img align="right" alt="My desk..." src="images/desk.jpg" width="320">
+<img align="right" alt="My desk..." src="images/desk.jpg" width="400">
 
 For either High School or College Graduation, Mark sent me a letter opener. A *letter opener*. Who does that? Who even was getting enough mail to justify it in the late 20th century. It’s got a Sterling Silver handle, with a little bit of texture and a stainless blade. It tarnishes a little, in an endearing way.
 
@@ -62,7 +62,7 @@ He told me about his marriage. And his thing for Megan Mullally types, especiall
 
 One happy side effect of Mark’s passing is that we don’t have to worry about Nick Offerman showing up with an axe.
 
-![Nick looks mad](images/nick.jpg)
+<img align="left" alt="Nick looks mad..." src="images/nick.jpg" width="300">
 
 Which is a good thing because I don’t stand a chance with nothing but a letter opener.
 
