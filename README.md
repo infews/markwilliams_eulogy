@@ -1,4 +1,4 @@
-I think Mark and I first met at a Writers’ Club meeting, his high school freshman year, my sophomore. I was trying on different clubs and this group of folks, including Miranda, seemed like a good one.
+I think Mark and I first met at a Writers’ Club meeting, his high school freshman year, my sophomore. I was trying on different clubs and this group of folks, which included Miranda, seemed like a good one.
 
 I wasn’t really writing much and the club didn’t meet very often. I mean, we got the yearbook photo and the college application mention. What more did we need?
 
