@@ -6,7 +6,7 @@ One of its members went on to write for The Daily Show and Conan, so someone mus
 
 Mark and I clicked due to music and movies and comics. I was between girlfriends. I had a car, which meant he could hitch to “Oxford, Too” for comics on Tuesdays after class. Dark Knight Returns and Watchmen were on their original publication runs, so we had plenty to nerd out about.
 
-He showed me how to appreciate comic inking that looked “sloppy” yet was intentional. He yelled at me for watching _Aliens_ before _Alien_, then sat me down to make me watch it. He knew about the deleted scenes and how they were referenced in _Aliens_ and now I understood.
+He showed me how to appreciate comic inking that looked “sloppy” yet was intentional. He yelled at me for watching Aliens before Alien, then sat me down to make me watch it. He knew about the deleted scenes and how they were referenced in Aliens and now I understood.
 
 Mark gave me my first real correction when I was being accidentally and casually racist.
 
@@ -14,17 +14,17 @@ I called his house and his dad answered. If you think Mark’s voice was deep an
 
 Mark came to the phone. I said something…stupid.
 
-> Me: “Wow. Your dad’s voice is so deep, I thought for a second that I was talking to a 6’6” muscular bouncer named Luther.”
+Me: “Wow. Your dad’s voice is so deep, I thought for a second that I was talking to a 6’6” muscular bouncer named Luther.”
 
-> Mark: “My dad’s name is Luther.”
+Mark: “My dad’s name is Luther.”
 
-> Me: “…Wait. Are you messing with me?”
+Me: “…Wait. Are you messing with me?”
 
 Because you know he could. And would.
 
-> Mark: “Nope. His name is Luther.”
+Mark: “Nope. His name is Luther.”
 
-> Me: 😳
+Me: 😳
 
 Dead. Silence. That’s all it took.
 
@@ -48,8 +48,6 @@ I did a lot of stupid things that trip. How did I not fall off that bridge? How 
 
 Recently, Mark checked with his mom and said she remembers me fondly. So, phew.
 
-<img align="right" alt="My desk..." src="images/desk.jpg" width="400">
-
 For either High School or College Graduation, Mark sent me a letter opener. A *letter opener*. Who does that? Who even was getting enough mail to justify it in the late 20th century. It’s got a Sterling Silver handle, with a little bit of texture and a stainless blade. It tarnishes a little, in an endearing way.
 
 And now it’s going to stay on my desk, next to my computer, for-pretty-much-ever.
@@ -59,8 +57,6 @@ Fast forward a couple of decades.
 Facebook has reunited so many old friends. We had 25 years to catch up on, which like any good GenX’ers, we did on a multiple-hour phone call. We talked about jobs, marriage, my kids. It was fun, we had several big chortles.
 
 He told me about his marriage. And his thing for Megan Mullally types, especially if they wore Lisa-Loeb-style glasses. As long as they weren’t *vegan*, because that brought ex-wife flashbacks.
-
-<img align="left" alt="Nick looks mad..." src="images/nick.jpg" width="240">
 
 One happy side effect of Mark’s passing is that we don’t have to worry about Nick Offerman showing up with an axe.
 
@@ -88,30 +84,22 @@ No, I don't know the recipe.
 
 My family and I were playing the Star Wars one out loud in the kitchen. I was posting the really good ones. But Mark hadn’t liked any of them yet. So I kept at it for a bit longer, jonesing for dem Likes.
 
-I was proudest of, _“Watch your coffee kid or you’ll find yourself floating home.”_
+I was proudest of, “Watch your coffee kid or you’ll find yourself floating home.”
 
 Still no Mark.
-
-<hr/>
-
-![](images/mark_vans.png)
 
 His Twitter account is gone - he didn’t use it much. Hackers kept taking it to sell RayBans, Ralph Lauren, and Birkenstocks.
 
 Mark - I keep telling you. People do NOT want to see my toes.
 
-![](images/green_dot.png)
-
 His Facebook window looks like it’s still open. Which is an off-putting artifact of the social media age. Our words have a much longer half-life than in centuries past.
 
 He won’t be randomly checking in via text. Or sending a surprise gift of a relic. Or, as I learned this weekend, ribald messages scribbled on Transformers Valentines.  
 
-But we’re posting his Haiku. His message threads. We are _busy_ making him immortal.
+But we’re posting his Haiku. His message threads. We are *busy* making him immortal.
 
 Someone else we lost too soon - Robin Williams - had advice for these situations. And I think Mark would agree.
 
-“When in doubt, go for the [dick joke][dick].”
+“When in doubt, go for the dick joke”
 
 _Davis W. Frank 2020 September 06_
-
-[dick]: https://imgur.com/gallery/v4RZRwF
